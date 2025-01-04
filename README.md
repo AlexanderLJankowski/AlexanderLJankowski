@@ -10,6 +10,7 @@
 - Top 16 MSHSL State Athlete.
 - Taps player, Triple Threat Award @ Century Middle School.
 - My hand drawn artworks in Opensea.
+- Friend of Xiong.
 - locate my github @AlecJankow and other account @AlexanderLeeJankowski
 
 <!---
