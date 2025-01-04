@@ -1,7 +1,7 @@
 - 👋 Hello, my name is Alexander Jankowski (Alec).
 - Veteran from the United States of America
 - Confirmed Lutheran.
-- 200 freestyle relay record holder for Forest Lake Senior High, zero Performance enhancing drugs.
+- 200 freestyle relay record holder at Forest Lake Senior High, zero Performance enhancing drugs.
 - 21.98 50 yard freestyle.
 - 48.12 100 yard freestyle.
 - NISCA All American Consideration.
