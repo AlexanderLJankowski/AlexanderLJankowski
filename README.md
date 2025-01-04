@@ -6,6 +6,7 @@
 - 48.12 100 yard freestyle.
 - NISCA All American Consideration.
 - Top 16 MSHSL State Athlete.
+- Taps player, Triple Threat Award @ Century Middle School.
 - My hand drawn artworks in Opensea.
 - locate my github @AlecJankow and other account @AlexanderLeeJankowski
 
