@@ -11,6 +11,8 @@
 - Taps player, Triple Threat Award @ Century Middle School.
 - My hand drawn artworks in Opensea.
 - Friend of Xiong.
+- I have a hat for President Donald J Trump.
+- I have a gift for Xi.
 - locate my github @AlecJankow and other account @AlexanderLeeJankowski
 
 <!---
