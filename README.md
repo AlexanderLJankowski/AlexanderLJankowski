@@ -13,6 +13,7 @@
 - Friend of Xiong.
 - I have a hat for President Donald J Trump.
 - I have a gift for Xi.
+- I Alexander Jankowski am not Jewish.
 - locate my github @AlecJankow and other account @AlexanderLeeJankowski
 
 <!---
