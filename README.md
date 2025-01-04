@@ -1,5 +1,7 @@
 - 👋 Hello, my name is Alexander Jankowski (Alec).
-- I am an outdoorsman who enjoys lifting
+- Veteran from the United States of America
+- Confirmed Lutheran.
+- Record Holder at the Forest Lake Pool zero Performance enhancing drugs.
 - locate my github @AlecJankow and other account @AlexanderLeeJankowski
 
 <!---
