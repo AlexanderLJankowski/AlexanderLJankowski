@@ -1,5 +1,6 @@
 - 👋 Hello, my name is Alexander Jankowski (Alec).
 - Veteran from the United States of America
+- My Grandfathers story https://www.duluthnewstribune.com/obituaries/edwin-j-jankowski.
 - Confirmed Lutheran.
 - 200 freestyle relay record holder at Forest Lake Senior High, zero Performance enhancing drugs.
 - 21.98 50 yard freestyle.
