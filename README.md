@@ -2,6 +2,7 @@
 - Veteran from the United States of America
 - Confirmed Lutheran.
 - Record Holder at the Forest Lake Pool zero Performance enhancing drugs.
+- My hand drawn artworks in Opensea.
 - locate my github @AlecJankow and other account @AlexanderLeeJankowski
 
 <!---
