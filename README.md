@@ -1,5 +1,6 @@
 - 👋 Hello, my name is Alexander Jankowski (Alec).
-- Veteran from the United States of America
+- Veteran from the United States of America.
+- Grandson to Marine Core Veteran Private Maynard Dahlstrom.
 - My Grandfathers story https://www.duluthnewstribune.com/obituaries/edwin-j-jankowski.
 - Confirmed Lutheran.
 - 200 freestyle relay record holder at Forest Lake Senior High, zero Performance enhancing drugs.
