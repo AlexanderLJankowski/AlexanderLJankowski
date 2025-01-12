@@ -14,6 +14,7 @@
 - I have a hat for President Donald J Trump.
 - I have a gift for Xi.
 - I Alexander Jankowski am not Jewish.
+- Joe is my Father.
 - locate my github @AlecJankow and other account @AlexanderLeeJankowski
 
 <!---
