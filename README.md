@@ -1,4 +1,5 @@
 - JESUS IS GOD
+- Call me wierd when you realize Aylo is making money. Go Canada be proud.
 - locate my github @AlecJankow and other account @AlexanderLeeJankowski
 
 <!---
