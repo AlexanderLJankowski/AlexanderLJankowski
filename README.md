@@ -1,5 +1,7 @@
 - JESUS IS GOD
+- Believe in the Lord with all your heart. Greatness will follow.
 - Call me wierd when you realize Aylo is making money. Go Canada be proud. Stay away from wierdoes.
+- Marriage is good. Take your time you have all of it.
 - locate my github @AlecJankow and other account @AlexanderLeeJankowski
 
 <!---
