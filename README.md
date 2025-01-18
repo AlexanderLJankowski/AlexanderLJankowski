@@ -1,6 +1,3 @@
-- JESUS IS GOD
-- Believe in the Lord with all your heart. Greatness will follow.
-- Marriage is good. Take your time you have all of it.
 - locate my github @AlecJankow and other account @AlexanderLeeJankowski
 
 <!---
