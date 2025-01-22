@@ -1,4 +1,5 @@
 - locate my github @AlecJankow and other account @AlexanderLeeJankowski
+- Hand of Father is not a finished work.
 - My Grandfather Sgt.Edwin https://www.duluthnewstribune.com/obituaries/edwin-j-jankowski
 
 <!---
