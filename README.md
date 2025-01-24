@@ -1,6 +1,5 @@
 - locate my github @AlecJankow and other account @AlexanderLeeJankowski
 - Hand of Father is not a finished work.
-- Jesus said that a man and a woman should leave their parents and become one flesh.
 - My Grandfather Sgt.Edwin https://www.duluthnewstribune.com/obituaries/edwin-j-jankowski
 
 <!---
