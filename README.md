@@ -1,5 +1,4 @@
 - locate my github @AlecJankow and other account @AlexanderLeeJankowski
-- Dont be a Sausage!
 - My Grandfather Sgt.Edwin https://www.duluthnewstribune.com/obituaries/edwin-j-jankowski
 
 <!---
