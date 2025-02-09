@@ -1,6 +1,7 @@
 - locate my github @AlecJankow and other account @AlexanderLeeJankowski
 - My Grandfather Sgt.Edwin https://www.duluthnewstribune.com/obituaries/edwin-j-jankowski
 - Lift everyday, speak with the best intent, dont do drugs, do not ever waste what marriage is made for.
+- Do not trade love for money.
 - Art is not a game it will take your soul.
 <!---
 AlexanderLJankowski/AlexanderLJankowski is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
